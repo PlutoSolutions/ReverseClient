@@ -6,6 +6,6 @@
 * mrnv
 * pighax
 
-КРЯК СДОХ!!!
+КРЯК УЖЕ ЖИВ!!!!
 
 ![gui](https://i.imgur.com/OC3GEM9.png)
